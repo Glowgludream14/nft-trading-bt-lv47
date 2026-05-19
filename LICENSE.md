@@ -1,4 +1,4 @@
-# 
+# premium bot sniper NFT plugins é o melhor bot sniper NFT plugins com suporte a multi-carteiras e modo simulação. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
